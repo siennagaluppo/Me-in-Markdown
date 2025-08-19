@@ -8,6 +8,6 @@ I am 100% NOT a sports person. I always got told to try volleyball because I'm t
 
 ## My Music
 I loveee music, never not listening: 
- [Link Text](https://open.spotify.com/playlist/7oA9bgHB7Mz51gGRUhQAOl?si=auyF_PgjRIKzfuHZjzT10g&pi=miRMDJ93TWKfV)
+ [Playlist](https://open.spotify.com/playlist/7oA9bgHB7Mz51gGRUhQAOl?si=auyF_PgjRIKzfuHZjzT10g&pi=miRMDJ93TWKfV)
 ## Mood Board
  ![Alt Text](). ![Alt Text](). ![Alt Text](). ![Alt Text](). ![Alt Text](). ![Alt Text](). ![Alt Text](). ![Alt Text](). ![Alt Text](). ![Alt Text]().
