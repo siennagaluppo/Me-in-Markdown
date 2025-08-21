@@ -10,4 +10,14 @@ I am 100% NOT a sports person. I always got told to try volleyball because I'm t
 I loveee music, never not listening: 
  [Playlist](https://open.spotify.com/playlist/7oA9bgHB7Mz51gGRUhQAOl?si=auyF_PgjRIKzfuHZjzT10g&pi=miRMDJ93TWKfV)
 ## Mood Board
- ![Alt Text]() 
+ ![Alt Text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcREOc1-oFOKyd384Ka2YssRGCH0HdcA2aUAXA&s) 
+ ![Alt Text](https://i.pinimg.com/564x/27/b5/d3/27b5d38b2a5ccb57f454dd3a7f38594b.jpg) 
+ ![Alt Text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQsO9fUelRS_ydQgTBTjJSFWdT1SDq3wkwDbA&s)
+ ![Alt Text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTiF4VcVl1XiT2xKFN_D1Dhin_aozAmryOYLQ&s)
+ ![Alt Text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRyaPvWkNaqnOrv6yNhCFEk7OftWFoqpzMkMg&s)
+ ![Alt Text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRuHug62WAFBWYaKlV014QX0u1ocvaPQZckuw&s)
+ ![Alt Text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT6zry0hm1eSD5wTk9j7keZJJSucOrR4tkSlA&s)
+ ![Alt Text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ7V3xlMhNoS__M9C3GhtqFoINDnpcRVR5CHw&s)
+ ![Alt Text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS9cTZFjiuN-vUEoMu9OYTiSbCT5hVlj5FhVA&s)
+ ![Alt Text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSd0Mpua90MTsO_731h-jvthqyhP3FC2uDnoQ&s)
+ ![Alt Text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ-iwf3GHAYMy5GJWOoRa7Mep19ueYyms_ysw&s)
